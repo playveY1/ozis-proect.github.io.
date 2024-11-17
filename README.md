@@ -1,1 +1,1 @@
-# ozis-proect.github.io.
+# ozis-proect
